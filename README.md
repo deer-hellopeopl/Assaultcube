@@ -209,4 +209,4 @@ AssaultCube is available as a full free version with all features and updates in
 Don't wait any longer! **Download AssaultCube free** today and immerse yourself in the action-packed world of this exhilarating FPS game. Get ready to challenge your friends and prove your skills!
 
 ---
-**Last updated:** 2026-11-13 05:48:39 UTC
+**Last updated:** 2026-11-13 14:14:19 UTC
